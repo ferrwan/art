@@ -4,4 +4,4 @@ Kongkow Media File
 
 ## Credit
 
-[Erlinda Mu](erlinda.mu[at]gmail.com) - [DevianArt](erlinda.deviantart.com)
+[Erlinda Mu](mailto:erlinda.mu@gmail.com) - [DevianArt](https://erlinda.deviantart.com)
